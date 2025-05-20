@@ -118,39 +118,3 @@ DONT FORGET TO FORK 🍴 & STAR 🌟 REPO😇
 <p align="">
 <a href='https://replit.com/~' target="_blank"><img alt='Replit' src='https://img.shields.io/badge/-Replit Deploy-1976D2?style=for-the-badge&logo=replit&logoColor=white'/< width=150 height=28/p></a> </a>
 <a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
-
-
-## 🪀 WHATSAPP CHANNEL 
-STAY CONNECTED WITH THE LATEST UPDATES AND COMMUNITY BY JOINING OUR OFFICIAL WHATSAPP GROUP AND CHANNEL. YOU CAN ALSO CONTACT THE OWNER DIRECTLY.
-
-[![WhatsApp Channel](https://img.shields.io/badge/JOIN-WHATSAAP%20CHANNEL-25D366?style=for-the-badge&logo=whatsapp)](https://whatsapp.com/channel/0029Vakd0RY35fLr1MUiwO3O)
-
-## 🪀 WHATSAPP GROUP
-JOINING OUR OFFICIAL WHATSAPP GROUP AND CHANNEL. YOU CAN ALSO CONTACT THE OWNER DIRECTLY.
-
-[![WhatsApp Group](https://img.shields.io/badge/JOIN-WHATSAAP%20GROUP-25D366?style=for-the-badge&logo=whatsapp)](https://whatsapp.com/channel/0029Vakd0RY35fLr1MUiwO3O)
-
- 
-
-
-***
-
-
- <br>
-<h2 align="center"> ⚠️ DISCLAIMER ⚠️
- </h2>
- 
- ---
-
-<h3 align="center"> DON'T COPY WITHOUT PERMISSION 
-</h3>
-
-<br>
-
-```
-I'M PRINCE M.
-```
------
-<a><img src='https://i.imgur.com/LyHic3i.gif'/></a>
-
-------
